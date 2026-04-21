@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Myself A Saud Baig, currently pursuing Information Science and Engineering at City Engineering College.<br><br>I'm an enthusiastic and curious individual with a strong passion for exploring and learning new things.<br><br>I thrive on challenges and am eager to expand my knowledge and skills, constantly seeking opportunities to grow and stay up-to-date with the latest trends and technologies in the industry.<br><br>Apart from tech, I am very much into Self-Help Journey which keeps me motivated throughout the process.
+Myself A Saud Baig, currently pursuing Information Science and Engineering at City Engineering College.<br><br>I'm an enthusiastic and curious individual with a strong passion for exploring and learning new things.<br><br>I thrive on challenges and am eager to expand my knowledge and skills, constantly seeking opportunities to grow and stay up-to-date with the latest trends and technologies in the industry.<br><br>Apart from tech, I am very much into Self-Help Journey which keeps me motivated throughout the process.
 
 
 ## 🌐 Socials:
